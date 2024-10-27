@@ -1,7 +1,0 @@
-# JPEG
-# JPEG
-# JPEG
-# JPEG
-# JPEG
-# JPEG
-# JPEG
